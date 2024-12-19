@@ -7,7 +7,7 @@ IKE PAZ The Founder of Nurie Creator
 Explore the comprehensive Nurie Creator OTO offers: 1st, 2nd, 3rd, and 4th levels, featuring Advanced, Funnel, and Reseller License links. The front-end option includes an agency license, plus additional OTOs. Take advantage of huge discounts and three bonus packages valued at $25k. View all Nurie Creator OTO sales pages below for complete details on each offer.
 
 
-If you buy it through our [**referral link**]( https://bit.ly/nurie-creator), we will give you a special reward  **60 % OFF Nurie Creator price** . 
+If you buy it through our [**referral link**]( https://bit.ly/nurie-creator), we will give you a special reward,limited time  **60 % OFF Nurie Creator price** . 
 
 Nurie Creator OVERVIEW
 Vendor Ike Paz
@@ -194,4 +194,4 @@ Nurie Creator BONUS PACKAGE
 ![Messenger-Facebook-09-28-2024_07_32_PM](https://github.com/user-attachments/assets/c925d3fd-280d-445b-83e5-2628357f6b58)
 ![1-Ike-Paz-I-love-when-I-see-this-never-gets-old-Nurie-Creator-Faceb_03_PM-1024x124](https://github.com/user-attachments/assets/609bcf50-f991-4760-8873-3febe40dca10)
 
-REMEMBER! If you buy this product through our [**link**]( https://bit.ly/nurie-creator), you can also get these **60 % OFF Nurie Creator price** . 
+REMEMBER! If you buy this product through our [**link**]( https://bit.ly/nurie-creator), you can get these limited time **60 % OFF Nurie Creator price** . 
